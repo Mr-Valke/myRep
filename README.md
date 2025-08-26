@@ -1,4 +1,3 @@
 HELLO
 WORLD
-sigmooooooooooooooooooooooo
-VELIKIY
+ГЛИСТЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫЫ ЛОЛ
